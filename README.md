@@ -5,3 +5,4 @@
 
 ### 📫 Contact
 - Email: faye.panagiotou@hec.edu
+- LinkedIn: [Faye Panagiotou](https://www.linkedin.com/in/fayepanagiotou/)
